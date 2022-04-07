@@ -15,6 +15,7 @@ __Digital Scholarship Librarian, Assistant Professor__<br>University Libraries, 
 __Digital Repository Manager__<br>Puerto Rico Archivo de Herencia Arquitectónica | Puerto Rico Architectural Heritage Archive
 <br><br>`January 2017-August 2019`<br>
 __Digital Scholarship Office Graduate Research Assistant__<br>Latin American Digital Initiatives and Digital Scholarship Office, LLILAS Benson, University of Texas at Austin
+
 ---
 ### Research areas
 
